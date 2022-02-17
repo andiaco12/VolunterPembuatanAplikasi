@@ -10,3 +10,4 @@ Berikut daftar Volunter yang diterima:
 
 
 * Oon Arfiantdwi, [oo.or.id](https://pp.or.id).
+* Andi Zulfikar Lavabetha, [AndiZulfikarL](https://www.linkedin.com/in/andi-zulfikar-543982229/).
